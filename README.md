@@ -1,0 +1,1 @@
+# quanttide-insight-of-course-development
